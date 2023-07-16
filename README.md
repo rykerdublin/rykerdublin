@@ -7,6 +7,6 @@ mixed mex emo furry boy .. he/pup autistic ☆ </br>
  jjba scott pilgrim pkmn horror marble hornets
 
 ![image](https://github.com/rykerdublin/rykerdublin/assets/125837934/90ecc2b1-08fb-4a07-b2a2-55546e66b035) ![image](https://64.media.tumblr.com/d5caeaa186671d22410d5f668b8173a2/3aad89103cdd8b2e-af/s100x200/fa112a937cf1b00706cf07979ab71dd22df9e2ca.gifv) ![image](https://github.com/rykerdublin/rykerdublin/assets/125837934/be2bdad6-2c7b-4167-9605-e04f4c5ed225) </br>
-DNI if im joshin and pulling your Leg and u dont commit to the bit
+
 
 

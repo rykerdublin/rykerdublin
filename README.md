@@ -1,4 +1,4 @@
-## Hi there 👋
+<img src="https://static.wikia.nocookie.net/bittersweet-sentence/images/d/dd/Unknown.png/revision/latest/scale-to-width-down/985?cb=20240731171935" alt="Unnamed | Bittersweet Sentence Wiki | Fandom"/>![image](https://github.com/user-attachments/assets/18b931e5-1002-4f6b-90e3-42efe33c8e78)
 
 <!--
 **eloquent-countenance/eloquent-countenance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

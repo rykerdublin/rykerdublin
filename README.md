@@ -3,7 +3,7 @@
 -
 <div align="center"> 
  
-###### "I WANT YOUR LOVE AND I WANT YOUR REVENGE! I WANT YOUR LOVE I DON'T WANNA BE FRIENDS! J'VEUX TON AMOUR, ET JE VEUX TA REVANCHE!! J'VEUX TON AMOUR I DON'T WANNA BE FRIENDS!!! "
+###### "I want to want you, baby, but you're making it so hard. I try to bite the bullet and just take you as you are."
 <div/>
 ㅤㅤ
 

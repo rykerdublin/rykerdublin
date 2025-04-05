@@ -3,15 +3,17 @@
 -
 <div align="center"> 
  
-###### "I want to want you, baby, but you're making it so hard. I try to bite the bullet and just take you as you are."
+######  "I'm a silent operator won't you please take my hand? I'm so polite, I'm the elevator man!"
 <div/>
-ㅤㅤ
+ㅤ
 
- ㅤ![image](https://64.media.tumblr.com/e2513194d5245bbd377cb0a445716b6d/afaffabccb490277-9e/s75x75_c1/1a4d2f1db45f88c2e49136db0a2656cf080718b3.gifv)
+ ㅤ![image](https://64.media.tumblr.com/e4383bd84b941145597495c8c71054ce/61d0bde25e279c58-0e/s75x75_c1/f527d6e0dd642ae468c5604403b8742414171ca1.gifv)
+ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-<img src="https://media.tenor.com/_0PByMvGwvwAAAAM/bittersweet-sentence-racheldrawsthis.gif" alt="Alt Text" width="600" height="500">⠀⠀⠀⠀
+
+ ![image](https://i.pinimg.com/736x/84/d8/55/84d855e2bf0b0906b4c7b7e92411818c.jpg) 
 </p>
   
    <p align="center">

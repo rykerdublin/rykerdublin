@@ -2,7 +2,6 @@
 -
 <div align="center"> 
  
-######  "I'm a silent operator won't you please take my hand? I'm so polite, I'm the elevator man!"
 <div/>
 ㅤ
 
